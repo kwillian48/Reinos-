@@ -1,0 +1,2 @@
+# Reinos-
+Jogo parecido Ws 
